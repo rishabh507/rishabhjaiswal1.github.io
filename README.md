@@ -1,1 +1,1 @@
-# tanyajaiswal20.github.io
+# rishabhjaiswal1.github.io
